@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ezstarr
+- 👋 Hi, I’m Esther (@ezstarr)
 - 👀 I’m interested in psychology, birds, spirituality, creativity, optimism, and new ideas.
 - 🌱 I’m currently learning python and C, watercolor and gouache.
 - 💞️ I’m looking to collaborate on any fun project!
